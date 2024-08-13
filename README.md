@@ -1,3 +1,1 @@
-### howdy
-🌱 further to my bio, I am rapidly consuming everything that I can that helps me work smarter. I wanted to understand plants (viz. nature), and still do, but I have now realised I will be much more effective at doing so with computational POWER on my side. Omics led to informatics which led to complex systems, I have so much to learn and so little time....
-
+🌱-->🪴-->🍄-->👽
